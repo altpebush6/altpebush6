@@ -1,3 +1,2 @@
 - Hi, I’m Ebu
-- I am working on a Social Media Website
 - You can reach me by email ebubekiralatepe2@gmail.com
